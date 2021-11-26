@@ -66,6 +66,11 @@ Ejercicios impares Capitulo 6:
 
 VIDEOS
 
+https://www.youtube.com/watch?v=7upNpIc_Jes
+
+https://www.youtube.com/watch?v=I8BgCX-oO5g
+
+
 CONCLUSIONES
 
 1. Existen diferentes maneras de resolver cada tipo de circuitos 
