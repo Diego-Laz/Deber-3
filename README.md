@@ -49,6 +49,21 @@ Ejercicios impares Capitulo 5:
 
 Ejercicios impares Capitulo 6:
 
+![image](https://user-images.githubusercontent.com/93835463/143529680-9974dac0-3c3a-4e4e-a173-b495cdb6de7c.png)
+![image](https://user-images.githubusercontent.com/93835463/143529704-e9c59b85-fd61-49c4-9ea9-b19819293352.png)
+![image](https://user-images.githubusercontent.com/93835463/143529720-a104318d-f0db-4c38-a304-5002a4166ff6.png)
+![image](https://user-images.githubusercontent.com/93835463/143529734-3cd04430-b431-483a-af54-ab45bea1fc37.png)
+![image](https://user-images.githubusercontent.com/93835463/143529740-a82faf57-8694-4f4d-a0b0-70cbfb8ff2cd.png)
+![image](https://user-images.githubusercontent.com/93835463/143529758-497c04af-554f-4cd3-ad6c-3f4ba35929a2.png)
+![image](https://user-images.githubusercontent.com/93835463/143529771-aca96992-f2c0-4f4f-a561-3b95202137b5.png)
+![image](https://user-images.githubusercontent.com/93835463/143529785-1f138f01-b905-4ed2-82fc-5a69b15566b7.png)
+![image](https://user-images.githubusercontent.com/93835463/143529795-23b48430-40b8-412f-a48b-7967c7c8be88.png)
+![image](https://user-images.githubusercontent.com/93835463/143529811-44deefbf-7d41-4057-99b0-d12aada058df.png)
+![image](https://user-images.githubusercontent.com/93835463/143529933-6b0621fd-59fb-450c-a3c6-9ad72c380bbc.png)
+![image](https://user-images.githubusercontent.com/93835463/143529848-a233ad18-068e-450e-a152-ddc0648c9b38.png)
+![image](https://user-images.githubusercontent.com/93835463/143529833-827c3305-d2e1-40dc-917a-8e19e3c5a29b.png)
+![image](https://user-images.githubusercontent.com/93835463/143529976-2b0ace2c-1eb6-4968-a554-8d5f9be16806.png)
+
 VIDEOS
 
 CONCLUSIONES
