@@ -71,6 +71,7 @@ https://www.youtube.com/watch?v=7upNpIc_Jes
 https://www.youtube.com/watch?v=I8BgCX-oO5g
 
 https://youtu.be/yF0KGecvmb8
+
 CONCLUSIONES
 
 1. Existen diferentes maneras de resolver cada tipo de circuitos 
